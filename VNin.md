@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分58秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国酸雨区面积占比降至3.2%，降水质量持续改善</h3><br><p>中际旭创再创阶段新高，趋势加速下的持仓策略。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>外资机构集中调研短视频出海标的，海外用户规模破亿</h3><br><p>华为智选新车型发布，相关合作车企单日大涨。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>QFII集中调研海上风电标的，深远海项目订单引热议</h3><br><p>全国南水北调沿线生态廊道建成，水质稳定保持Ⅱ类。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>智飞生物代理+自研双轮驱动：疫苗行业的稳健成长逻辑</h3><br><p>全国氢能产业示范城市群落地，燃料电池汽车推广超12万辆。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>全国健身气功交流大赛举办，覆盖超百万中老年爱好者</h3><br><p>基金公司集体到访建筑光伏一体化标的，订单爆发式增长。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>疫情新变种出现，医药防护板块集体走强</h3><br><p>全国癌症早筛项目覆盖所有地级市，早诊率提升至60%。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>北向资金举牌冷链物流标的，生鲜配送网络扩张获外资流入</h3><br><p>中国男子帆船队亚运会夺冠，水上项目实现新突破。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>交控科技城轨信号优势：国内城轨信号系统的国产替代</h3><br><p>海外资管组团调研光伏逆变器标的，海外市占率突破30%。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>智慧景区全覆盖，全国5A景区全部实现刷脸入园智能导览</h3><br><p>养老金新进光伏逆变器标的，海外市占率提升获长期配置。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>保险资管连续增持AI安防龙头，海外订单高增获机构认可</h3><br><p>大股东耗资7亿增持游戏出海龙头，回购用于员工持股计划。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>中国女子曲棍球队闯入世界联赛总决赛，实力稳步回升</h3><br><p>全国校园足球特色校破2万，青少年足球人才储备加厚。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>油气增储上产政策，油气设备板块集体上涨</h3><br><p>实控人兜底式增持AI大模型标的，员工参与规模超预期。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>洋河股份渠道改革：白酒企业渠道优化的成功案例解析</h3><br><p>中国建筑基建龙头优势：国内建筑行业的订单与规模优势。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>苏炳添复出百米跑出9秒98，重返世界顶尖选手行列</h3><br><p>全国生物多样性观测网络建成，覆盖超3000个生态点位。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>零跑汽车异动拉升7.9%，性价比车型销量爆发</h3><br><p>全国旅游志愿服务队伍超百万，提升游客出行体验。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>中国排球队世界联赛夺冠，三大球集体项目重回巅峰</h3><br><p>时间是优秀企业的朋友：陪伴好公司成长，远比做短线暴利靠谱。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>5年期LPR下调带动居民购房意愿回升，地产销售边际改善</h3><br><p>控股股东耗资3亿增持车载雷达标的，回购注销增厚业绩。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>头部机构组团到访中药创新药标的，医保谈判结果超预期</h3><br><p>QFII集中调研乳制品龙头，高端产品占比提升至45%。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>大北农种业布局：转基因商业化下的种业龙头成长逻辑</h3><br><p>中国男子射击队世锦赛斩获6金，奥运席位全部拿满。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>保险资管举牌绿电运营标的，长期配置价值获机构认可</h3><br><p>上半年全国财政收入同比增长3.7%，民生支出占比超70%。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>知名私募大手笔增持汽车轻量化标的，持仓占比突破4%</h3><br><p>沪股通席位单日买入中国中冶5300万，冶金工程标的增持。<br><br> | 来源：<code>www.thepodala.com
