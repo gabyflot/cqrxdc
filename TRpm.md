@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时20分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国建筑涨超2.8%，基建订单持续饱满</h3><br><p>敦煌莫高窟暑期门票预约排至10天后，数字敦煌线上访问破亿。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>多地出台文旅人才扶持政策，引进超万名文旅行业专业人才</h3><br><p>QFII集中调研宠物食品龙头，海外市场渗透率数据公开。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>农药价格开启新一轮涨价，农化板块盈利弹性释放</h3><br><p>上合组织峰会召开，新增3个成员国组织规模进一步扩大。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>宝钢股份企稳回升，钢铁行业盈利预期边际改善</h3><br><p>全国重点海域入海排污口整治完成，海洋污染源头管控加强。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>央行加大结构性降息力度，精准支持数字经济领域</h3><br><p>百亿私募组团调研生物育种标的，玉米种子推广面积超预期。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>全球光伏装机量突破18亿千瓦，清洁能源普及加速</h3><br><p>北向资金单日买入福耀玻璃7200万，玻璃龙头获外资持续流入。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>1年期LPR下调降低企业短期融资成本，经营活力提升</h3><br><p>被动元器件价格集体上涨，电子板块盈利边际改善。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>中微公司放量拉升6.2%，刻蚀设备订单持续落地</h3><br><p>挪威经济稳步增长，油气和新能源产业协同发展。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>北向资金大额扫货恩捷股份1.4亿，隔膜龙头获外资流入</h3><br><p>机构资金集中买入牧原股份2.5亿，养殖龙头获机构抱团。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>头部机构组团到访核电设备龙头，新机组中标订单披露</h3><br><p>紫金矿业全球资源布局：铜金龙头的长期产量增长逻辑。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>重庆路桥异动拉升2.4%，区域路桥业务盈利稳定</h3><br><p>重庆马拉松开跑，3万跑者体验山城赛道赛事热度创新高。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%</h3><br><p>企业债券融资利率大幅下行，直接融资占比进一步提升。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>海洋强国建设新规划发布，海洋经济总量突破9万亿元</h3><br><p>中国船舶涨超4.5%，造船行业订单持续饱满。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>中芯国际行业格局分析：半导体制造国产替代的核心路径</h3><br><p>养老金新进光伏逆变器标的，海外市占率提升获长期配置。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>文化产业扶持政策，文化传媒板块全线异动</h3><br><p>企业融资成本创历史新低，制造业投资增速回升。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>北向资金连续增持养老产业标的，银发经济赛道获外资流入</h3><br><p>大股东承诺6个月内不减持氢能标的，释放稳定股价信号。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>吉利汽车放量上涨5.6%，新能源车型占比突破50%</h3><br><p>全国保障性住房建设进度过半，年内新开工超300万套。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>全国城镇调查失业率降至4.8%，就业形势保持总体稳定</h3><br><p>全国游泳冠军赛落幕，多名小将打破全国纪录。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>大股东耗资7亿增持游戏出海龙头，回购用于员工持股计划</h3><br><p>2026年上半年GDP同比增长5.8%，经济复苏动能持续增强。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>工业硅价格触底反弹15%，光伏硅料成本端压力下降</h3><br><p>美欧贸易谈判达成协议，解决钢铁铝关税争端。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>中国铁人三项队亚洲杯夺冠，耐力项目实力跻身亚洲前列</h3><br><p>需求侧响应政策落地，电力营销板块集体上涨。<br><br> | 来源：<code>www.79lr.com
