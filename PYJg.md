@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分56秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国美术馆年展览超2万场，艺术惠民覆盖千万群众</h3><br><p>暑期托管服务全面推行，免费提供兴趣课程和作业辅导。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>黄山暑期单日客流破4万，山顶酒店提前半个月售罄</h3><br><p>中芯国际放量突破平台，短线多头力量持续增强。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>万华化学MDI技术优势：化工龙头的全产业链协同价值</h3><br><p>北向资金单日净流入超150亿，降息后外资加速入场。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>中超联赛第20轮，上海申花6-0大胜对手稳居积分榜榜首</h3><br><p>新能源汽车换电模式推广政策，换电产业链拉升。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>全国中医药服务覆盖所有社区，中医馆成为基层医疗标配</h3><br><p>万华化学MDI技术优势：化工龙头的全产业链协同价值。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>游资顶级席位打板中兴通讯2.2亿，通信标的获短线资金热炒</h3><br><p>镍价单月上涨11%，不锈钢板块迎来涨价催化。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>中国电建异动拉升3.3%，新能源电站装机量高增</h3><br><p>恒瑞医药创新药放量，前三季度业绩预增超40%。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>机构资金集中买入华域汽车7800万，零部件龙头获抱团</h3><br><p>社保基金新进锂电回收龙头，布局循环经济高景气赛道。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>全国青少年体育赛事覆盖所有项目，参赛人次突破千万</h3><br><p>机构专用席位净买入温氏股份7400万，养殖龙头获长线加仓。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>国内大模型评测标准发布，统一行业能力评估体系</h3><br><p>全球循环经济市场规模突破5万亿美元，资源利用效率提升。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>跨境游持续升温，中国游客赴东南亚人次同比暴涨200%</h3><br><p>全球储能市场规模突破500GWh，新型电力系统建设提速。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>飞天茅台批价突破2900元，白酒龙头盈利超预期</h3><br><p>成渝双城经济圈政策加码，成渝板块标的全线上涨。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>全国碳排放权交易市场成交额突破200亿元，碳定价机制完善</h3><br><p>国内大模型专利申请量全球第一，占比超60%。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>国内演出市场票房上半年突破200亿，演唱会经济爆发</h3><br><p>上半年全国战略性新兴产业增加值同比增长9.3%。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>全国县域旅游百强县榜单发布，江浙地区占比超六成</h3><br><p>高管团队集体调研后增持冷链物流标的，合计增持超8000万。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>储能电池价格小幅上涨3%，储能产业链价格体系企稳</h3><br><p>油气增储上产政策，油气设备板块集体上涨。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>全国县域旅游百强县榜单发布，江浙地区占比超六成</h3><br><p>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>全国朱鹮种群数量突破1万只，从7只恢复至广泛分布</h3><br><p>北向资金单日买入正泰电器4700万，户用光伏龙头获流入。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>中国男子足球队U23亚洲杯闯入四强，获得巴黎奥运资格</h3><br><p>醋产品价格上调6%，食醋板块盈利改善。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>全国健身健美锦标赛举办，选手展现力量与健美风采</h3><br><p>大模型在环保领域应用，污染源识别准确率超96%。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>暑期电影票房突破120亿，国产影片包揽票房前十</h3><br><p>锂电铝箔价格上调5%，铝箔上市公司盈利弹性释放。<br><br> | 来源：<code>www.bjgengke.com
