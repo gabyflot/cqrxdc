@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>长安汽车深蓝品牌定位：主流新能源市场的差异化竞争</h3><br><p>全国文化产业园区超3000家，集聚效应带动创意产业发展。<br><br> | 来源：<code>https://heiliaowangyongjiuyuming.com.cn
+</code></p><br><br><h3>全国滑板锦标赛举办，年轻选手展现街头运动活力</h3><br><p>社保基金新进汽车座椅龙头，布局汽车轻量化赛道。<br><br> | 来源：<code>https://heiliaowangzaixian.cn
+</code></p><br><br><h3>联合国可持续发展目标中期评估，明确后续行动路径</h3><br><p>全国国家森林公园数量增至1000个，生态旅游蓬勃发展。<br><br> | 来源：<code>https://heiliaowangzhan.cn
+</code></p><br><br><h3>MLCC价格单月上涨5%，电容龙头盈利弹性释放</h3><br><p>银保监会出台新政，进一步降低实体经济融资成本。<br><br> | 来源：<code>https://heiliaowangzuixin.cn
+</code></p><br><br><h3>上半年全国战略性新兴产业增加值同比增长9.3%</h3><br><p>QFII集中调研海上风电标的，深远海项目订单引热议。<br><br> | 来源：<code>https://heiliaowanwang.cn
+</code></p><br><br><h3>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善</h3><br><p>2026年AI产业赋能经济增长超万亿，成为数字经济核心引擎。<br><br> | 来源：<code>https://heiliaowudeshipin.cn
+</code></p><br><br><h3>润和软件鸿蒙生态布局：国产操作系统的商业化空间测算</h3><br><p>北交所改革政策落地，北交所概念股集体走强。<br><br> | 来源：<code>https://heiliaozaixian.cn
+</code></p><br><br><h3>桂林山水暑期游客量突破400万人次，经典景区持续焕发活力</h3><br><p>北方华创半导体设备订单爆发，单季业绩预增超80%。<br><br> | 来源：<code>https://heiliaozaixianguankan.cn
+</code></p><br><br><h3>天际股份放量上涨4.3%，锂电材料业务盈利修复</h3><br><p>北向资金连续加仓赣锋锂业，锂矿龙头获外资持续流入。<br><br> | 来源：<code>https://heiliaozaixiankan.cn
+</code></p><br><br><h3>上半年高技术产业投资同比增长12.5%，产业升级步伐加快</h3><br><p>卓胜微放量拉升5.7%，射频芯片行业景气度回升。<br><br> | 来源：<code>https://heiliaozhengnengliang.cn
+</code></p><br><br><h3>美联储第三次降息落地，全球风险偏好显著提升</h3><br><p>飞天茅台批价突破2900元，白酒龙头盈利超预期。<br><br> | 来源：<code>https://heiliaozhongwenwang.cn
+</code></p><br><br><h3>平高电气放量上涨4.0%，特高压开关份额提升</h3><br><p>全球区块链产业规模突破万亿美元，Web3.0应用落地加速。<br><br> | 来源：<code>https://heimacili.com.cn
+</code></p><br><br><h3>三一重工涨超4.1%，海外工程机械订单高增</h3><br><p>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好。<br><br> | 来源：<code>https://heishequliao.com.cn
+</code></p><br><br><h3>北京环球影城暑期单日客流破5万，周边酒店一房难求</h3><br><p>金风科技风电装机超预期，前三季度业绩预增超40%。<br><br> | 来源：<code>https://heisimeinubeicao.com.cn
+</code></p><br><br><h3>煤炭价格企稳回升，煤炭高股息标的集体上涨</h3><br><p>海南自贸港封关运作倒计时，海南本地股全线异动。<br><br> | 来源：<code>https://heiwangliao.cn
+</code></p><br><br><h3>中国中车全球轨道交通布局：一带一路带来的增量空间</h3><br><p>美的集团全球化运营：家电龙头的海外市场拓展逻辑。<br><br> | 来源：<code>https://henhenai.com.cn
+</code></p><br><br><h3>游资知名席位联手买入固德威5000万，储能标的获追捧</h3><br><p>民宿行业规范发展政策，乡村旅游标的全线拉升。<br><br> | 来源：<code>https://henhenlu.com.cn
+</code></p><br><br><h3>社保基金现身半导体材料龙头，国产替代率突破70%</h3><br><p>中际旭创再创阶段新高，趋势加速下的持仓策略。<br><br> | 来源：<code>https://hg-sports-hub.com.cn
+</code></p><br><br><h3>存储芯片价格连续上涨12%，存储板块迎来趋势性行情</h3><br><p>嫦娥探月工程新任务，航天科技产业链迎来催化。<br><br> | 来源：<code>https://hg-sports-net.com.cn
+</code></p><br><br><h3>公募基金集中调研智慧矿山龙头，煤矿智能化改造订单翻倍</h3><br><p>接受市场的不完美：不要试图精准抄底逃顶，赚自己认知内的钱。<br><br> | 来源：<code>https://hg-sports-pro.com.cn
