@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分23秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>东方财富放量大涨，券商板块异动激活市场人气</h3><br><p>海天味业调味品动销超预期，单季业绩预告超预期。<br><br> | 来源：<code>https://rihanzaixianshipin.cn
+</code></p><br><br><h3>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购</h3><br><p>机构资金集中买入华域汽车7800万，零部件龙头获抱团。<br><br> | 来源：<code>https://rihanzaixianyongjiuyuming.com.cn
+</code></p><br><br><h3>5年期LPR超预期下调，地产链迎来全面行情催化</h3><br><p>央行加大逆回购操作并下调利率，短期流动性持续充裕。<br><br> | 来源：<code>https://ririlu.org.cn
+</code></p><br><br><h3>国产历史剧细节考究，多部作品成为全网热议文化现象</h3><br><p>海天味业涨超3.5%，调味品行业需求复苏。<br><br> | 来源：<code>https://ririshipin.com.cn
+</code></p><br><br><h3>天顺风能异动拉升4.6%，风电塔架订单高增</h3><br><p>宁德时代跳空高开6.4%，麒麟电池商业化落地加速。<br><br> | 来源：<code>https://rou-rou-wu.com.cn
+</code></p><br><br><h3>中国冲浪队首次获得世界冠军，水上运动版图持续扩大</h3><br><p>北向资金举牌工业机器人龙头，外资持仓创历史新高。<br><br> | 来源：<code>https://rouputuan.com.cn
+</code></p><br><br><h3>革命老区振兴发展新政策落地，缩小区域发展差距</h3><br><p>大金重工放量上涨5.7%，风电塔筒全球份额领先。<br><br> | 来源：<code>https://rpghuangyou.com.cn
+</code></p><br><br><h3>广西交投旗下标的异动，东盟基建合作持续深化</h3><br><p>武汉长江灯光秀暑期上新，吸引超千万游客观赏打卡。<br><br> | 来源：<code>https://ruanmengtutujiang.com.cn
+</code></p><br><br><h3>中印经贸合作回暖，双边贸易额同比增长15%</h3><br><p>全国广场舞大赛总决赛举办，超百万大妈参与线上线下赛事。<br><br> | 来源：<code>https://rugzdf.cn
+</code></p><br><br><h3>存量房贷利率集中下调，居民消费能力有望边际改善</h3><br><p>保险资管扎堆调研CRO龙头，创新药管线临床数据披露。<br><br> | 来源：<code>https://rumengshequ.cn
+</code></p><br><br><h3>上半年全国医药制造业利润同比增长13%，创新药贡献突出</h3><br><p>正泰电器户用光伏优势：分布式光伏龙头的渠道壁垒。<br><br> | 来源：<code>https://rusetuxidongman.com.cn
+</code></p><br><br><h3>紫金矿业成本优势：全球铜金龙头的低成本矿产资源储备</h3><br><p>全国马术赛事超百场，马术运动从小众走向大众。<br><br> | 来源：<code>https://rutoujiaojiazu.com.cn
+</code></p><br><br><h3>华为星闪技术大规模商用，相关产业链标的领涨</h3><br><p>全球汽车市场新能源渗透率突破30%，中国品牌引领潮流。<br><br> | 来源：<code>https://rutoujiaojiazuzaixianguankan.com.cn
+</code></p><br><br><h3>中国男子体操队世锦赛团体夺冠，重回世界巅峰</h3><br><p>工业互联网平台落地，工业数字化标的全线拉升。<br><br> | 来源：<code>https://rutoujiazu.com.cn
+</code></p><br><br><h3>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现</h3><br><p>自由贸易试验区扩围，自贸港本地股异动。<br><br> | 来源：<code>https://san-shangyouya.com.cn
+</code></p><br><br><h3>机构+北向合力买入紫光国微1.5亿，军工芯片标的获资金布局</h3><br><p>白酒批价连续上涨，高端白酒板块盈利弹性释放。<br><br> | 来源：<code>https://sands9570.com
+</code></p><br><br><h3>新能源汽车换电模式推广政策，换电产业链拉升</h3><br><p>知名私募大手笔增持乳制品龙头，持仓占比达3.5%。<br><br> | 来源：<code>https://sanji-dianying.com.cn
+</code></p><br><br><h3>MLCC价格单月上涨5%，电容龙头盈利弹性释放</h3><br><p>机构+北向合力买入思源电气5200万，电网设备标的布局。<br><br> | 来源：<code>https://sanjipian-zh.com.cn
+</code></p><br><br><h3>洛阳龙门石窟暑期游客量突破200万人次，石窟艺术游受追捧</h3><br><p>知名私募大手笔增持汽车轻量化标的，持仓占比突破4%。<br><br> | 来源：<code>https://sanquyi.com.cn
+</code></p><br><br><h3>结构性降息精准支持制造业，高端制造板块获定向利好</h3><br><p>国产美食纪录片全网播放量突破180亿，舌尖上的中国系列持续更新。<br><br> | 来源：<code>https://se-daohang.cn
