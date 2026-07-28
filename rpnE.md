@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分43秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国滑板队奥运会夺得银牌，新兴项目快速崛起</h3><br><p>养老服务体系建设政策，养老产业标的全线走强。<br><br> | 来源：<code>https://jingpinyiquerqu.com.cn
+</code></p><br><br><h3>头部公募调研汽车电子标的，车规芯片出货量环比大增</h3><br><p>储能电池价格小幅上涨3%，储能产业链价格体系企稳。<br><br> | 来源：<code>https://jingpinyiqujiujiuoumei.cn
+</code></p><br><br><h3>海南自贸港封关运作倒计时，海南本地股全线异动</h3><br><p>拓普集团护城河分析：汽车零部件平台型企业的长期价值。<br><br> | 来源：<code>https://jingxiangjulia.net.cn
+</code></p><br><br><h3>重庆洪崖洞暑期日均游客量突破25万人次，网红城市持续火爆</h3><br><p>智飞生物异动拉升4.9%，疫苗产品批签发量回升。<br><br> | 来源：<code>https://jinman-tiantang.com.cn
+</code></p><br><br><h3>国内AI安全技术突破，大模型内容风控拦截率达99.9%</h3><br><p>水产品价格集体上涨，水产养殖板块迎来涨价催化。<br><br> | 来源：<code>https://jinmandaowang.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功</h3><br><p>海尔智家高端化布局：白电龙头的品牌溢价能力。<br><br> | 来源：<code>https://jinmantiantangbenzi.com.cn
+</code></p><br><br><h3>罕见病药物医保激励政策，罕见病药标的走强</h3><br><p>中国通号高铁信号技术：全球轨交信号系统龙头的壁垒。<br><br> | 来源：<code>https://jinmantiantangfabuye.com.cn
+</code></p><br><br><h3>机构席位大额买入澜起科技8500万，内存芯片龙头获布局</h3><br><p>宁德时代跳空高开6.4%，麒麟电池商业化落地加速。<br><br> | 来源：<code>https://jinmantiantangfangwen.com.cn
+</code></p><br><br><h3>全国新能源汽车保有量突破3000万辆，减排效果显著</h3><br><p>超240家机构到访氢能燃料电池标的，商用车推广数据公开。<br><br> | 来源：<code>https://jinmantiantangjmcomic.com.cn
+</code></p><br><br><h3>国内自驾游人次破10亿，新能源自驾路线成热门选择</h3><br><p>温氏股份管理优化：养殖行业底部的经营效率提升逻辑。<br><br> | 来源：<code>https://jinmantiantangmanhua.com.cn
+</code></p><br><br><h3>车载激光雷达企业登陆科创板，量产交付进度超市场预期</h3><br><p>大金重工放量上涨5.7%，风电塔筒全球份额领先。<br><br> | 来源：<code>https://jinmantiantangrukou.com.cn
+</code></p><br><br><h3>天齐锂业触底反弹，锂矿价格企稳带动板块情绪</h3><br><p>机构专用席位净买入长电科技1.9亿，封测龙头获长线资金加仓。<br><br> | 来源：<code>https://jinmantiantangwang.com.cn
+</code></p><br><br><h3>合肥推出“科里科气”文旅线路，科技研学游订单暴涨</h3><br><p>外资机构席位净买入双汇发展6400万，肉制品龙头获加仓。<br><br> | 来源：<code>https://jinmantiantangwangye.com.cn
+</code></p><br><br><h3>QFII集中调研休闲食品龙头，线下渠道复购率数据公开</h3><br><p>全国文旅消费投诉量同比下降30%，市场秩序持续优化。<br><br> | 来源：<code>https://jinmantiantangwangyeban.com.cn
+</code></p><br><br><h3>机构资金集中买入海螺水泥7300万，水泥龙头获机构抱团</h3><br><p>武当山暑期游客量突破120万人次，道教文化游持续升温。<br><br> | 来源：<code>https://jinmantiantangwangyebanlianjie.com.cn
+</code></p><br><br><h3>多地推出稳外贸新政，出口退税速度压缩至3个工作日内</h3><br><p>超200家机构到访锂电铜箔龙头，4.5μm极薄铜箔量产。<br><br> | 来源：<code>https://jinmantiantangzaixian.com.cn
+</code></p><br><br><h3>全国水土流失治理面积年度完成6万平方公里，生态修复提速</h3><br><p>大模型在交通领域应用，城市拥堵率下降20%。<br><br> | 来源：<code>https://jinmantiantangzaixianguankan.com.cn
+</code></p><br><br><h3>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进</h3><br><p>温氏股份放量上涨4.2%，养殖业务盈利持续修复。<br><br> | 来源：<code>https://jinmantianwang.com.cn
+</code></p><br><br><h3>哪吒汽车涨超7.3%，下沉市场份额持续提升</h3><br><p>泸州老窖国窖批价上调6%，区域白酒龙头盈利改善。<br><br> | 来源：<code>https://jinmanwang.com.cn
+</code></p><br><br><h3>东数西算工程新节点开工，IDC算力板块走强</h3><br><p>比亚迪AH股同步涨超6%，6月销量数据超预期。<br><br> | 来源：<code>https://jinpiantiantang.com.cn
