@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分46秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>除草剂价格单月上涨15%，农药龙头盈利修复超预期</h3><br><p>AI音乐生成工具普及，原创音乐产出效率提升10倍。<br><br> | 来源：<code>https://xingfu-shenghuo.cn
+</code></p><br><br><h3>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率</h3><br><p>河南卫视中国节日系列节目全网播放量突破200亿次。<br><br> | 来源：<code>https://xingfubao.net.cn
+</code></p><br><br><h3>中芯国际晶圆制造国产替代：14nm及以下制程的突破路径</h3><br><p>东莞控股放量上涨2.2%，珠三角车流量高增。<br><br> | 来源：<code>https://xingfubaoliulianshipin.cn
+</code></p><br><br><h3>央行下调SLF利率，货币政策宽松取向进一步明确</h3><br><p>中秋国庆旅游数据超预期，旅游酒店板块异动。<br><br> | 来源：<code>https://xingfubaoxiazai.cn
+</code></p><br><br><h3>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张</h3><br><p>航发动力军机交付超预期，前三季度业绩预增超30%。<br><br> | 来源：<code>https://xingfudaohang.cn
+</code></p><br><br><h3>中国-东盟自贸区3.0版谈判完成，贸易便利化升级</h3><br><p>容百科技放量拉升5.5%，高镍正极渗透率持续提升。<br><br> | 来源：<code>https://xingfushedaohang.cn
+</code></p><br><br><h3>猪肉价格触底反弹，生猪养殖标的集体走强</h3><br><p>锂电铝箔价格上调5%，铝箔上市公司盈利弹性释放。<br><br> | 来源：<code>https://xingkong-wuxian.com.cn
+</code></p><br><br><h3>德业股份储能逆变器优势：民营新能源企业的突围逻辑</h3><br><p>法律大模型上线，AI辅助律师办案效率提升2倍。<br><br> | 来源：<code>https://xingkongchuanmeixianglingdezuopin.com.cn
+</code></p><br><br><h3>香港高校内地招生扩容500名额，新增大湾区相关特色专业</h3><br><p>北方稀土突破前期平台，短线弹性有望释放。<br><br> | 来源：<code>https://xingkongchuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>养老金现身特高压龙头调研，海外工程落地节奏引热议</h3><br><p>国电南瑞电力数字化：新型电力系统建设下的长期受益。<br><br> | 来源：<code>https://xingkongchuanmeizaixianmianfeiguankan.com.cn
+</code></p><br><br><h3>全国千岛湖水质保持Ⅰ类，成为重要饮用水源地标杆</h3><br><p>2026年上半年GDP同比增长5.8%，经济复苏动能持续增强。<br><br> | 来源：<code>https://xingkongqiutan.com.cn
+</code></p><br><br><h3>中际旭创再创历史新高，800G光模块份额超70%</h3><br><p>锰价上涨8%，锰酸锂材料板块迎来行情。<br><br> | 来源：<code>https://xingkongwuxianchuanmei.com.cn
+</code></p><br><br><h3>家电出口超预期：白电、厨电的海外市场增量空间</h3><br><p>上半年全国智能手机出货量同比增长7%，国产品牌占比提升。<br><br> | 来源：<code>https://xingkongying-shi.com.cn
+</code></p><br><br><h3>全国中华秋沙鸭种群数量突破3000只，河流生态健康标志</h3><br><p>外资机构席位净买入国电南瑞1.6亿，电网设备龙头获外资加仓。<br><br> | 来源：<code>https://xingkongyingyuanzaixianguankanmianfei.com.cn
+</code></p><br><br><h3>海外资管组团调研智能驾驶标的，城市NOA落地节奏披露</h3><br><p>工业大模型落地万座工厂，生产效率平均提升30%。<br><br> | 来源：<code>https://xingshi-zixunyuan.com.cn
+</code></p><br><br><h3>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置</h3><br><p>国电南瑞电网自动化高增，单季业绩预告超预期。<br><br> | 来源：<code>https://xiuxiu-dongman.com.cn
+</code></p><br><br><h3>北向资金大额扫货赣锋锂业2.6亿，锂矿龙头获外资流入</h3><br><p>中国国际跳棋队世锦赛夺冠，新兴智力运动实现突破。<br><br> | 来源：<code>https://xiuxiu-shipin-zh.com.cn
+</code></p><br><br><h3>全球冷链物流市场规模突破4000亿美元，生鲜贸易增长</h3><br><p>中国冲浪队首次获得世界冠军，水上运动版图持续扩大。<br><br> | 来源：<code>https://xiuxiu-shipin.com.cn
+</code></p><br><br><h3>全国远程医疗覆盖所有县域，优质医疗资源下沉至基层</h3><br><p>思源电气电网设备优势：民营电网设备龙头的技术积累。<br><br> | 来源：<code>https://xiuxiushipin.org.cn
+</code></p><br><br><h3>AI大模型企业启动申购，ToB付费转化率超行业平均水平</h3><br><p>海上风电深远海规划，深远海风电板块集体上涨。<br><br> | 来源：<code>https://xiuxiushipinwang.com.cn
